@@ -1,3 +1,3 @@
-# tow-nails
+# toe-nails
 *FREE TOE NAILS*
 GET EM NOWWWWWWWW
